@@ -1,1 +1,1 @@
-![clideo_editor_2e0039280b3d42328937bf4a1d380193](https://github.com/Pineapplesz/Rythm/assets/79477576/061fd386-42d1-4104-8de9-322d10ad9f5a)
+![Untitleddesign-ezgif com-video-to-gif-converter](https://github.com/Pineapplesz/Rythm/assets/79477576/bc8a6c32-7a1e-4c6c-b8ef-e4157c9509eb)
